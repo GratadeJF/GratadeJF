@@ -29,6 +29,6 @@ or by mail : gratade.jfpro@gmail.com
 
 ### My Goals for 2022 📌
 
-- Master my skills in React.JS and lear to use other langages
+- Master my skills in React.JS and learn to use other langages such as Python, PHP 
 - Consolidate my bases in NodeJS Express and mySQL
 - Find my first job ! 
