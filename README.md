@@ -21,7 +21,7 @@ or by mail : gratade.jfpro@gmail.com
 
 ### About me 👁️
 
-- Jean-François, 28 years old, I live in Orléans
+- Jean-François, 28 years old, I live in Orléans (France)
 - I am passionnate about cars in general : one of my dream is to have the biggest collection ever ! 
 - I am learning how to play the piano 
 
